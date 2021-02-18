@@ -1,1 +1,0 @@
-# bulgantamirl.github.io
